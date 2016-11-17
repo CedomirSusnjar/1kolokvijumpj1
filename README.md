@@ -1,0 +1,1 @@
+# 1kolokvijumpj1
